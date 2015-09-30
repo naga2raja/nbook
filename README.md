@@ -11,6 +11,6 @@ The person started the conversation by asking me "To kerala?". I said No, I am g
 
 I am Raj, working as a Project Manager in a Top MNC. I am going to attend a business meeting at Technopark, Kerala.
 
-That's short and sweet. 
+That's short and sweet. Raj looks like a normal chennaiwala, should be in his 40's, wheatish skin, square face, just above average body. His branded Tee and shoe ensures that he works for an IT company.
 
 
