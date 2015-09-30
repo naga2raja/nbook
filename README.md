@@ -7,10 +7,10 @@ My eyes was searching for the platform number of "Alleppey Express" from Chennai
 
 The person sitting opposite offered me water after seeing me panting for breath. Although there is a water bottle somewhere inside my bag, I was weary to find it. I returned back the water bottle with a "thanks". I was actually heading to my sister's home at Tirupur for the weekend. Its been ten minutes since the train started and I took a book from my bag and started to read it.  
 
-The person started the conversation by asking me "To kerala?". I said No, I am going to my sister's home for weekend. What about you?
+The person who offered me water, gradually started the conversation by asking me "To kerala?". I said No, I am going to my sister's home for weekend. What about you?
 
-I am Raj, working as a Project Manager in a Top MNC. I am going to attend a business meeting at Technopark, Kerala.
+To Kerala for a business meet. By the way, I am Raj working as a Project Manager in a Top MNC.
 
-That's short and sweet. Raj looks like a normal chennaiwala, should be in his 40's, wheatish skin, square face, just above average body. His branded Tee and shoe ensures that he works for an IT company.
+That's short and sweet. Raj looks like a normal Chennaiwala, should be in his 40's, wheatish skin, square face, just above average body. His branded Tee and shoe ensures that he works for an IT company.
 
 
