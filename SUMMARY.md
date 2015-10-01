@@ -1,5 +1,5 @@
 # Summary
 
 * [Introduction](README.md)
-* [Epilogue](Prologue.md)
+* [Prologue](Prologue.md)
 
