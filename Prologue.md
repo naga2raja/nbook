@@ -14,7 +14,7 @@ That's short and sweet. Raj looks like a normal Chennaiwala, should be in his 40
 
 Raj asked me, "Do you love anyone?". I said "No, I'm not that much lucky". He smiled and told that you are lucky enough to escape from the clutches of Love.Being in love had more cons than pros.Love gives you more pain that you had ever imagined. You'll get distracted, make you insecure, jealous, forgetful, show disinterest on everything. You will lose hours of your peaceful sleep at nights thinking about your partner. I was bewildered after hearing his discourse on love.He might have a love failure which put him in agony and that should be the reason for this discourse.
 
-It seems, you've been affected with this love failure syndrome right?. Yes, not once but "FIVE Times". He started to narrate his love stories right from his childhood. This book is a set of all his love stories which has all mixed feelings.
+It seems, you've been affected with this love failure syndrome right?. Yes, not once but "FIVE Times". He started to narrate his love stories right from his childhood. This book is a set of all his love stories which has all mixed emotions. 
 
 **But more than anything else, LOVE IS AN WONDERFUL FEELING.
 **
