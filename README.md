@@ -1,3 +1,3 @@
-# I hate being loved
+# என்ன லவ்டா இது!!!  I hate being loved
 
-I'm currently writing the book. You can read it after I'm done.
+தற்போது புத்கத்தை எழுதிகொண்டிருக்கிறேன். எழுதி முடிந்தவுடன் நீங்கள் படிக்கலாம். 
