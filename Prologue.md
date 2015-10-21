@@ -1,5 +1,17 @@
 # Prologue
 
+அந்தி மாலை பொழுது !! அழகாய் சூரியன் அஸ்தமித்துகொண்டு  இருந்தான்.
+
+ரசிக்க நேரமில்லை, ஓடிக்கொண்டு இருந்தேன். இன்னும் சரியாக 20 நிமிடத்தில் என் ரயில் கிளம்பிவிடும். ஒவ்வொரு நிமிஷத்துக்கும் என் கை கடிகாரத்தை பார்த்துகொண்டு மனதில் ரயிலை பிடிக்கும் வாய்பை கணக்கு  பண்ணிகொண்டு  இருந்தேன். டாக்ஸி டிரைவரை சற்று வேகமா போக சொன்னேன்.
+
+ ரயில் நிலையத்தில் இருங்கியவுடன், 80 ரூபாய்க்கு 100 ரூபாயை கொடுத்துவிட்டு  மீதியை கேக்க  நேரமில்லாமல் என் பையை எடுத்துகொண்டு வேகமாக பிளாட்பாரம் தேடி ஓடினேன்.  
+
+டிஜிட்டல் பலகையில் ரயிலின் தடத்தை தேடிக்கொண்டு இருந்தது கண்கள். "அழப்பி, அழப்பி , ஹா அழப்பி எக்ஸ்பிரஸ் , பிளாட்பாரம் 9".  பக்கம் தான் என்று நினைத்து கொண்டு இருக்கும் போதே, "அழப்பி எக்ஸ்பிரஸ் இன்னும் சற்று நேரத்தில் புறப்படும்" என்று அறிவிப்பு வந்தது.
+
+S 12 கோச், எந்த கடைசின்னு தெரியலயே!! சேரி எந்த S கோச் பார்த்தாலும் ஏறிடலாம். அப்பறம் உள்ளுக்குள்ள போயிடலாம். யோசித்து கொண்டே எதிர் வரும் ஆட்களை கூட சரியாக கவனிக்காமல் ஓடிக்கொண்டு இருந்தேன்.
+
+ஒரு வழியாக என் கோச்சை கண்டுபிடித்து ஏற ரயில் புறப்பட சரியாக இருந்தது.
+
 It was a sunny evening and I was in a great hurry to catch my train which was about to start in 20 minutes. I keep on looking at my Watch for every minute and calculating the probability of catching the train. As soon as the taxi arrived at the station, I pulled out my bag, paid the fare and started rushing into the station.
 
 My eyes was searching for the platform number of "Alleppey Express" from Chennai to Kerala on the digital board. It was platform 3, I hurried to the platform. After running a hundred meters hurdles, I found my couch and sat on my seat with full sweaty face. I wasn't bothered to wipe the sweat on my face leaving it to the responsibility of the moving train's window air. 
